@@ -25,5 +25,6 @@ Again, over-thinking is stress.
 <br />
 Not thinking enough will probably lead to stress.
 <br />
+To reiterate, regular doses of short-term stress is normal and healthy. It's the overdose of stress that we must be wary of.
 <br />
-<a target="_blank" href="https://www.youtube.com/watch?v=ajo3xkhTbfo">Anyway, here is Dr. Gabor Maté and the bio-psycho-social model of health, and how stress leads to disease.</a>
+<a target="_blank" href="https://www.youtube.com/watch?v=ajo3xkhTbfo">Anyway, here is Dr. Gabor Maté and the bio-psycho-social model of health, and how stress gone wild leads to disease.</a>
